@@ -1,4 +1,4 @@
-Chapter 3: Importance of Choosing the Right Music for Specific Tasks and Activities
+Importance of Choosing the Right Music for Specific Tasks and Activities
 ===================================================================================
 
 In this chapter, we will delve into the significance of selecting the appropriate music for specific tasks and activities. Music has the potential to profoundly impact our cognitive abilities, emotions, and performance. Understanding how different genres, tempos, and styles can influence our mindsets and productivity is essential for harnessing the power of music effectively.

@@ -1,4 +1,4 @@
-Chapter 6: Importance of Live Music in Enhancing Concentration and Performance
+Importance of Live Music in Enhancing Concentration and Performance
 ==============================================================================
 
 Live music holds a special place in the realm of music, offering unique benefits that can enhance concentration and improve performance. In this chapter, we will explore the significance of live music and how it affects our ability to focus and excel in various domains. Let's delve into the enchanting world of live music and its impact on concentration and performance.
