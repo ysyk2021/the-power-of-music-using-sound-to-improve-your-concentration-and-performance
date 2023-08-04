@@ -3,7 +3,7 @@ Strategies for Staying Mindful and Present During Tasks While Enjoying the Benef
 
 In this chapter, we will explore strategies for staying mindful and present during tasks while enjoying the benefits of music. Music has the power to enhance concentration, elevate mood, and improve performance. By combining the advantages of music with mindfulness techniques, we can optimize our focus and engagement with various tasks.
 
-1. Set Intentions and Establish Boundaries
+1\. Set Intentions and Establish Boundaries
 ------------------------------------------
 
 Setting intentions and boundaries before engaging in a task can help you stay mindful and present. Consider the following strategies:
@@ -12,7 +12,7 @@ Setting intentions and boundaries before engaging in a task can help you stay mi
 
 * **Designate Time Intervals**: Determine specific time intervals for focusing on the task at hand. Commit to working solely on that task without distraction or interruption during those time periods.
 
-2. Select Suitable Music
+2\. Select Suitable Music
 ------------------------
 
 Choosing the right music to accompany your tasks plays a crucial role in maintaining mindfulness and presence. Consider the following strategies:
@@ -23,7 +23,7 @@ Choosing the right music to accompany your tasks plays a crucial role in maintai
 
 * **Music Matched to Task Complexity**: Adapt the music choice based on the complexity of the task. For more demanding and intricate tasks, select simpler and less stimulating melodies to prevent cognitive overload.
 
-3. Practice Mindful Listening
+3\. Practice Mindful Listening
 -----------------------------
 
 Engaging in mindful listening techniques allows you to stay present and fully absorb the benefits of music while accomplishing tasks. Consider the following strategies:
@@ -34,7 +34,7 @@ Engaging in mindful listening techniques allows you to stay present and fully ab
 
 * **Non-Judgmental Observation**: Observe your thoughts, emotions, and physical sensations as they arise, without judgment or attachment. Approach the task and the music with curiosity and openness.
 
-4. Avoid Multitasking and Distractions
+4\. Avoid Multitasking and Distractions
 --------------------------------------
 
 Multitasking and distractions undermine mindfulness and hinder productivity. Consider the following strategies:

@@ -3,7 +3,7 @@ Techniques for Overcoming Distractions and Maintaining Focus While Listening to 
 
 In this chapter, we will explore effective techniques for overcoming distractions and maintaining focus while listening to music. Although music can enhance concentration and performance, external and internal distractions can hinder our ability to fully engage with the music. By employing these techniques, you can optimize your listening experience and reap the benefits of music.
 
-1. Create a Distraction-Free Environment
+1\. Create a Distraction-Free Environment
 ----------------------------------------
 
 Setting up a distraction-free environment is crucial for maintaining focus while listening to music. Consider the following techniques:
@@ -14,7 +14,7 @@ Setting up a distraction-free environment is crucial for maintaining focus while
 
 * **Eliminate Visual Distractions**: Minimize visual distractions by tidying up your workspace or using curtains or blinds to block out any distracting visuals.
 
-2. Practice Active Listening
+2\. Practice Active Listening
 ----------------------------
 
 Engaging in active listening allows you to stay focused and fully experience the music. Consider the following techniques:
@@ -25,7 +25,7 @@ Engaging in active listening allows you to stay focused and fully experience the
 
 * **Engage Multiple Senses**: Enhance your listening experience by engaging multiple senses. Close your eyes to eliminate visual distractions and focus solely on the auditory sensations.
 
-3. Use Mindfulness Techniques
+3\. Use Mindfulness Techniques
 -----------------------------
 
 Incorporating mindfulness techniques can help overcome distractions and maintain focus while listening to music. Consider the following techniques:
@@ -36,7 +36,7 @@ Incorporating mindfulness techniques can help overcome distractions and maintain
 
 * **Labeling**: When distractions occur, mentally label them as "thought," "sound," or "emotion." This simple act of labeling can create distance between you and the distraction, making it easier to let go and refocus on the music.
 
-4. Set Clear Listening Goals
+4\. Set Clear Listening Goals
 ----------------------------
 
 Setting clear goals for your listening sessions can help maintain focus and purpose. Consider the following techniques:
