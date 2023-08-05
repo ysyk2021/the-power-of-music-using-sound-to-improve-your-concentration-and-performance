@@ -11,4 +11,3 @@ So, as you continue on your journey, keep an open mind and stay curious. Try new
 
 Remember, the power of music is within reach. Keep exploring and discovering the many ways it can enhance your life and help you reach your full potential.
 
-
