@@ -1,5 +1,3 @@
-Chapter 7: Exploring the Benefits of Live Music
-===============================================
 
 Live music can have a significant impact on concentration and performance, offering a unique experience that cannot be replicated through recordings. In this chapter, we will explore the importance of live music in enhancing concentration and performance, as well as provide tips for attending concerts, performances, and other live music events to boost creativity and energy.
 

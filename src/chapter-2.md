@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Science of Music and the Brain
-===========================================================
 
 Music has a profound effect on the brain, impacting everything from mood to cognitive abilities. In this chapter, we'll explore the science behind music and how it affects the brain.
 

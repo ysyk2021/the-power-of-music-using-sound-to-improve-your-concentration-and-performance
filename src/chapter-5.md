@@ -1,5 +1,3 @@
-Chapter 5: Incorporating Music into Your Workday or Study Routine
-=================================================================
 
 Music can be a powerful tool for improving concentration and productivity in work or study activities. In this chapter, we will explore the importance of incorporating music into a workday or study routine, as well as techniques for using music to structure time and increase efficiency.
 

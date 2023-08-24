@@ -1,5 +1,3 @@
-Chapter 4: Creating Playlists for Productivity and Performance
-==============================================================
 
 Creating playlists can be a powerful tool for enhancing productivity and performance. In this chapter, we'll explore the role of creating playlists and strategies for creating playlists that align with specific goals and activities.
 

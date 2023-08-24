@@ -1,5 +1,3 @@
-Recap of Strategies for Using Sound to Improve Concentration and Performance
-====================================================================================================
 
 In this book, we have explored the power of music and sound in improving concentration and performance. From classical music to white noise, there are a variety of sounds that can be used to create a productive environment for work, study, and other activities. In this final chapter, we will recap some of the key strategies discussed throughout the book.
 

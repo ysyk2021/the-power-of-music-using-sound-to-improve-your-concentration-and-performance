@@ -1,5 +1,3 @@
-Techniques for Selecting Music that Enhances Mood, Improves Concentration, and Increases Motivation
-==============================================================================================================
 
 In this chapter, we will delve into various techniques for selecting music that can enhance mood, improve concentration, and increase motivation. Choosing the right music is essential to optimize the desired effects and align with the task at hand. Let's explore some strategies to help you select music that maximizes its benefits.
 

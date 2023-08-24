@@ -1,5 +1,3 @@
-Chapter 6: Using Music to Relax and Reduce Stress
-=================================================
 
 Music can be a powerful tool for relaxation and stress reduction. In this chapter, we'll explore the role of music in relaxation and stress reduction, as well as strategies for using music to enhance mindfulness, meditation, and other relaxation techniques.
 
@@ -31,5 +29,4 @@ Here are some additional tips for using music to relax and reduce stress:
 * **Experiment with different genres:** Different genres of music can evoke different emotions and sensations, so experiment with different styles to find what works best for you.
 
 By following these strategies for using music to enhance mindfulness, meditation, and other relaxation techniques, we can harness the power of music to promote relaxation, reduce stress levels, and improve overall well-being. Remember to choose calming music, use it as a cue, personalize your playlist, match the music to the technique, incorporate nature sounds, minimize distractions, use headphones, and experiment with different genres for the best results.
-
 

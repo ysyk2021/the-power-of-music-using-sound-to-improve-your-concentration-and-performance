@@ -1,4 +1,3 @@
-# Introduction
 
 Music is an integral part of human life and has been used for centuries as a means of expression, entertainment, and relaxation. However, recent research has revealed that music also has the power to enhance concentration, increase productivity, and improve overall performance.
 

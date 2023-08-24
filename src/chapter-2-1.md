@@ -1,5 +1,3 @@
-Techniques for Understanding the Science of Music and How It Affects the Brain
-=========================================================================================
 
 In this chapter, we will explore various techniques for understanding the science behind music and its profound effects on the brain. By delving into the intricate relationship between music and the brain, we can gain valuable insights into how music enhances concentration and improves performance. Let's dive right in!
 

@@ -1,5 +1,3 @@
-Strategies for Harnessing the Power of Music to Improve Focus and Productivity
-===========================================================================================================================================
 
 Music has been a part of human culture for thousands of years, but only recently have scientists begun to understand its effects on the brain. In this chapter, we will explore strategies for harnessing the power of music to improve focus and productivity.
 

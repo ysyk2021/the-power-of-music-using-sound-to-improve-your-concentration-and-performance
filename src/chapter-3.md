@@ -1,5 +1,3 @@
-Chapter 3: Choosing the Right Music for Your Task
-=================================================
 
 Music can be a powerful tool for improving concentration, motivation, and performance. However, choosing the right music for specific tasks and activities is crucial to achieve the desired effect. In this chapter, we'll explore the importance of choosing the right music and techniques for selecting music that enhances mood, improves concentration, and increases motivation.
 

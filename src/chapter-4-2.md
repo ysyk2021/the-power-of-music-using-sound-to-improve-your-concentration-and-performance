@@ -1,5 +1,3 @@
-Strategies for Creating Playlists that Align with Specific Goals and Activities
-===============================================================================================================================================
 
 Music can be a powerful tool for boosting productivity and enhancing performance. In this chapter, we'll explore how to create playlists that align with your specific goals and activities.
 
